@@ -1,5 +1,7 @@
 ɴᴏᴠᴀ / ᴋᴏɪ !!
+
  functional multiplicity sys
+ 
 he/him/it/they/pup ✦ !! pots, autism, epilepsy, OSDD + more (yes, i am m.)
 
 negativity won't get you pretty far here
