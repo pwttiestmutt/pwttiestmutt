@@ -1,7 +1,7 @@
 <p align="center">
 <p align="center"> ɴᴏᴠᴀ / ᴋᴏɪ / ᴘᴜᴘ 🦴 !!
 
-<p align="center"> functional multiplicity sys <a href="https://mixedpaw.straw.page"> (more!!)</a></p>                                                                                                                                                                  <a href="https://pronouns.cc/@pwttiestmutt"> (meet us!!)</a></p>
+<p align="center"> functional multiplicity & endogenic sys <a href="https://mixedpaw.straw.page"> (more!!)</a></p>                                                                                                                                                                  <a href="https://pronouns.cc/@pwttiestmutt"> (meet us!!)</a></p>
 
                                                                                                                                                                        <a href="https://mixedpaw.carrd.co/"> (host !!)</a></p>
              
