@@ -1,11 +1,11 @@
 <p align="center">
 <p align="center"> ɴᴏᴠᴀ / ᴋᴏɪ !!
 
-<p align="center"> functional multiplicity sys
+<p align="center"> functional multiplicity sys <a href="https://mixedpaw.straw.page"> (more!!)</a></p>
  
 <p align="center"> he/him/it/they/pup ✦ !!
   
-<p align="center"> pots, autism, epilepsy, OSDD + [more!!](https://mixedpaw.straw.page)
+<p align="center">pots, autism, epilepsy, OSDD 
 
 <p align="center">
   <img src="https://blinkies.cafe/b/display/0271-chronicmigraines.gif" width="150" /> 
@@ -38,8 +38,9 @@
                    
 
    
-<p align="center">
-𝙸𝚗𝚝𝚛𝚘 ! ⋆ ˖ ࣪
+<div align="center">
+
+Intro!⋆.ೃ࿔*:･
 
 hi im nova, or koi . !!
 
@@ -53,37 +54,10 @@ i'm in plenty of fandoms which i have a tab for :3
 
 sometimes i disappear for a bit but i always come back.
 
-𝙳𝙽𝙸 .
+DNI .
 
 if you're under 14, or above 22.
 
 MAP's, pedophiles, racists, homophobics, MAGA's, "anti-proshipper!" you guys r so cringe ..
 
-if you're someone i used to know, theres a reason why i don't anymore.
-
-dandy's world fans,,, sorry not sorry.
-
-if u romanticize mental health, gtfo. no explanation needed
-
-anything to do with ai. ew.
-
-𝙱𝚈𝙸 !!
-
-do not make insensitive jokes towards me and expect me to "just calm down."
-
-i use tone tags if needed because i genuinely can't tell when people are sarcastic or not.
-
-i make a lot of kys and dark jokes and use caps ,, gulps.
-
-i am very awkward and try my best to keep convos going but it doesn't always work out
-
-i am autistic, i may require a bit more reassurance, if you don't like that bai bai !!
-
-i don't condone in harassing someone just to be cool, just block n move on.
-
-i love people who interact, crown me!!!, c+h, or just sit w me in general. just pls don't cover me ! (dnk unless you're close friend, either.)
-
-𝑁𝑖𝑐𝑘𝑛𝑎𝑚𝑒𝑠 !!
-
-🍥 ⟡ Nova, koi, pup, mutt .
-</p>
+</div>
