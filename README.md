@@ -40,7 +40,7 @@
    
 <div align="center">
 
-Intro!⋆.ೃ࿔*:･
+*Intro! ⋆ .ೃ࿔*:･*
 
 hi im nova, or koi . !!
 
