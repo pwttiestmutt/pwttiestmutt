@@ -50,7 +50,7 @@ artist, writer, & electric guitarist
 
 i have exotic animals, ask 4 more info on ata!
 
-i'm in plenty of fandoms which i have a tab for :3
+i'm in plenty of fandoms which i have a tab for :3 <a href="fandoms">(more!!)</a>
 
 sometimes i disappear for a bit but i always come back.
 
