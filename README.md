@@ -1,5 +1,5 @@
 <p align="center">
-<p align="center"> ɴᴏᴠᴀ / ᴋᴏɪ !!
+<p align="center"> ɴᴏᴠᴀ / ᴋᴏɪ / ᴘᴜᴘ 🦴 !!
 
 <p align="center"> functional multiplicity sys <a href="https://mixedpaw.straw.page"> (more!!)</a></p>
  
