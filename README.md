@@ -3,7 +3,7 @@
 
 <p align="center"> functional multiplicity sys <a href="https://mixedpaw.straw.page"> (more!!)</a></p>
  
-<p align="center"> he/him/it/they/pup ✦ !!
+<p align="center"> he/him/it/they/pup ✦ silly fursuit owner !!
   
 <p align="center">pots, autism, epilepsy, OSDD 
 
