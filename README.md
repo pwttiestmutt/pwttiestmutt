@@ -48,6 +48,8 @@ i prefer not to say my age online but i'm somewhere inbetween the 19-23 age rang
 
 artist, writer, & electric guitarist
 
+yes i'm a chud, yes i smoke weed, no you can't "fix" or "change" me.
+
 i have exotic animals, ask 4 more info on ata!
 
 i'm in plenty of fandoms which i have a tab for :3 <a href="fandoms">(more!!)</a>
