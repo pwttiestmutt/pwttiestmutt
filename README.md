@@ -46,7 +46,7 @@
 
 hi im nova, or koi . !!
 
-i prefer not to say my age online but i'm somewhere inbetween the 19-23 age range.
+i prefer not to say my age online but i'm somewhere inbetween the 19-23 age range. if you care that much, you can find it somewhere connected to my gh .
 
 artist, writer, & electric guitarist
 
