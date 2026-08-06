@@ -1,5 +1,6 @@
 <p align="center">
 <p align="center"> ɴᴏᴠᴀ / ᴋᴏɪ / ᴘᴜᴘ 🦴 !!
+<p align="center"> ‧˚꒰🐾୭ ˚. ᵎᵎ
 
 <p align="center"> functional multiplicity & endogenic sys <a href="https://mixedpaw.straw.page"> (more!!)</a> ˚ ↞♡-« strawpg </p>                                                                                                                                                                  <a href="https://pronouns.cc/@pwttiestmutt"> (meet us!!)</a></p>
 
