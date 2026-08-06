@@ -8,7 +8,7 @@
              
 <p align="center"> he/him/it/they/pup ✦ mlm & silly fursuit owner !!
   
-<p align="center">pots, autism, epilepsy, OSDD 
+<p align="center">pots, autism, epilepsy, DID 
 
 <p align="center">
   <img src="https://blinkies.cafe/b/display/0271-chronicmigraines.gif" width="150" /> 
