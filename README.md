@@ -49,7 +49,7 @@ hi im nova, or pup . !!
 
 petre / petdre ☁ `don't like that? hide me !`
 
-i prefer not to say my age online but i'm somewhere inbetween the 19-23 age range. if you care that much, you can find it somewhere connected to my gh .
+i prefer not to say my age online but i'm somewhere inbetween the 17-19 age range. if you care that much, you can find it somewhere connected to my gh .
 
 artist, writer, & electric guitarist
 
@@ -63,7 +63,7 @@ sometimes i disappear for a bit but i always come back.
 
 DNI .
 
-if you're under 15, or above 24.
+if you're under 15, or above 19.
 
 MAPs, pedophiles, racists, homophobics, MAGAs, lolicon/shotas
 
