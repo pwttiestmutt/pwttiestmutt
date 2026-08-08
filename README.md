@@ -29,10 +29,13 @@
  <img src='https://www.image2url.com/r2/default/images/1785899449466-9c4efa7b-7453-4f3c-8366-70e30f83d64e.png' />
  <img src='https://y2k.neocities.org/stamps/tumblr_inline_pe6lmadSpm1v11djx_1280.gifhttps://external-media.spacehey.net/media/s0oBA5y79yb0eybPoTob11C6MCuRM8JXheXmDQ6dgVbI=/https://orig00.deviantart.net/b688/f/2018/227/4/7/pup_stamp__band_and_f2u__by_spacemelonn-dck6x2o.png
   
-. negativity won't get you pretty far here
+<p align="center"> . negativity won't get you pretty far here
+
 
 <p align="center"> i am not entilted to be nice to you, nor be your friend. (esp if ur an asshole)
-<p align="center">
+
+ 
+<p align="center"> . minors may int , but don't expect a friendship on anything .
 <img src='https://www.image2url.com/r2/default/images/1785899905576-bb70afda-ac18-46dc-80f3-9d8211838e76.webp' />
 
 
