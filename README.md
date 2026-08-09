@@ -5,6 +5,7 @@
 <p align="center"> functional multiplicity sys <a href="https://mixedpaw.straw.page"> (more!!)</a> ˚ ↞♡-« + strawpg </p>                                                                                                                                                                  <a href="https://pronouns.cc/@pwttiestmutt"> (meet us!!)</a></p>
 
                                                                                                                                                                        <a href="https://mixedpaw.carrd.co/"> (host !!)</a></p>
+                                                                                                                             <p align="center">  <img src='https://shorturl.at/KsP1G' />
                                                                                                                                                                        
                                                                                                                           
                                                                                                                           
