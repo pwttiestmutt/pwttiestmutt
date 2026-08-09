@@ -57,7 +57,7 @@
 
 *Intro! ⋆ .ೃ࿔*:･*
 
-hi im nova, or pup . !!
+hi im nova, or pup . !! (host >__<)
 
 petre / petdre ☁ `don't like that? hide me !`
 
