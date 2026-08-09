@@ -14,7 +14,7 @@
              
 <p align="center"> he/it/they/pup ✦ mlm & silly fursuit owner !!
   
-<p align="center">pots, autism, epilepsy, DID 
+<p align="center">pots, autism, epilepsy, DID, AUDHD +
 
 <p align="center">
   <img src="https://blinkies.cafe/b/display/0271-chronicmigraines.gif" width="150" /> 
