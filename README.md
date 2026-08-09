@@ -6,7 +6,7 @@
 
                                                                                                                                                                        <a href="https://mixedpaw.carrd.co/"> (host !!)</a></p>
                                                                                                                              <p align="center">  <img src='https://shorturl.at/KsP1G' />
-<p align="center">  <img src='https://shorturl.at/j9TTI' />                                                                                                                            
+<p align="center">  <img src='https://shorturl.at/2YdEL' />                                                                                                                            
                                                                                                                                                                        
                                                                                                                           
                                                                                                                           
