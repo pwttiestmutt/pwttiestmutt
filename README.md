@@ -42,7 +42,7 @@
 <p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i am not entilted to be nice to you, nor be your friend. (esp if ur an asshole)
 ⠀⠀
  ⠀
-<p align="center"> minors may int , but don't expect a friendship on anything .
+<p align="center"> minors may int , but don't expect a friendship on any socials BESIDES ponytown .
 
  
 <img src='https://www.image2url.com/r2/default/images/1785899905576-bb70afda-ac18-46dc-80f3-9d8211838e76.webp' />
