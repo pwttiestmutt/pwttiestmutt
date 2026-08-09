@@ -12,7 +12,7 @@
                                                                                                                           
                                                                                                                        
              
-<p align="center"> he/him/it/they/pup ✦ mlm & silly fursuit owner !!
+<p align="center"> he/it/they/pup ✦ mlm & silly fursuit owner !!
   
 <p align="center">pots, autism, epilepsy, DID 
 
