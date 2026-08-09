@@ -61,17 +61,17 @@ hi im nova, or pup . !!
 
 petre / petdre ☁ `don't like that? hide me !`
 
-i prefer not to say my age online but i'm somewhere inbetween the 17-19 age range. if you care that much, you can find it somewhere connected to my gh .
+we prefer not to say our age online but our bodily age is somewhere inbetween the 17-19 age range. if you care that much, you can find it somewhere connected to our gh .
 
 artist, writer, & electric guitarist
 
-yes i'm a chud, yes i smoke weed, no you can't "fix" or "change" me.
+yes we ARE a chud, yes we DO smoke weed, no you can't "fix" or "change" us.
 
-i have exotic animals, ask 4 more info on ata!
+we have exotic animals, ask 4 more info on ata!
 
-i'm in plenty of fandoms which i have a tab for :3 <a href="fandoms">(more!!)</a>
+we're in plenty of fandoms which we have a tab for :3 <a href="fandoms">(more!!)</a>
 
-sometimes i disappear for a bit but i always come back.
+sometimes we disappear for a bit but we always come back.
 
 DNI .
 
